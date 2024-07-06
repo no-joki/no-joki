@@ -5,7 +5,7 @@
 hello! if you're here, you're most likely from Pony Town
 <p align="center">
 My name is <b>RORY</b>, I'm a 19 y/o artist.
-My carrd has more about me. Feel free to follow me anywhere, especially ARTFIGHT!!!
+My carrd has more about me.
 </p>
 
 <p align="center"><details>
