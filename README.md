@@ -2,7 +2,7 @@
 <img src="https://file.garden/Zdu77rwq23DtX9qX/pony-town-really%20weird%20cat-boop-blinking-padded-4x%20(2).gif" width="150" height="150" border="10"/ ><img src="https://file.garden/Zdu77rwq23DtX9qX/pony-town-%F0%9F%8C%A0%20af_%20nojoki-boop-blinking-padded-toy104-4x.gif" width="150" height="150" border="10"/ >
 </p>
 <p align="center">
-hello! if you're here, you're most likely from Pony Town. I've been playing since around early 2017, but my current account isn't too old. I've been here since desat ponies and the "." epidemic
+hello! if you're here, you're most likely from Pony Town. I've been playing since around early 2017, but my current account isn't too old. I've been here since desat ponies and the "." epidemic before the chat log was implemented.
 <p align="center">
 My name is <b>RORY</b>, I'm a 19 y/o artist.
 My carrd has more about me.
