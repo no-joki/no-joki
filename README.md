@@ -25,7 +25,7 @@ My carrd has more links.
   <p><b>MUSIC:</b> car seat headrest, scissor sisters, modest mouse, forgive durden, david bowie, the antlers, the garden, abba, billy joel</p>
   <p><b>MANGA/ANIME:</b> witch hat atelier, dungeon meshi, houseki no kuni, vinland saga, to your eternity, tokyo ghoul, the promised neverland</p>
   <p><b>SHOWS:</b> the bear, the boys, the handmaid's tale, infinity train, the midnight gospel, invincible</p>
-  <p>Media has increasingly become more expensive and backed by people with corrupt morals. Piracy is your friend, and as the <a href="https://twitter.com/HakitaDev/status/1797245014268891236">creator of Ultrakill has said</a>; culture shouldn't exist just for those who can afford it. Support those who deserve it, but remember that not everything/everyone is completely perfect.</p>
+  <p>Media has increasingly become more expensive and backed by people with corrupt morals. Piracy is your friend, and as the <a href="https://twitter.com/HakitaDev/status/1797245014268891236">creator of Ultrakill has said</a>; culture shouldn't exist just for those who can afford it. Support those who deserve it, but remember that not everything/everyone is completely perfect. Searching for that will exhaust you, and it's okay to enjoy things with a critical eye.</p>
 </details>
 </p>
 
