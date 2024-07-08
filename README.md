@@ -1,11 +1,11 @@
 <p align="center">
-<img src="https://file.garden/Zdu77rwq23DtX9qX/pony-town-really%20weird%20cat-boop-blinking-padded-4x%20(2).gif" width="150" height="150" border="10"/ ><img src="https://file.garden/Zdu77rwq23DtX9qX/pony-town-%F0%9F%8C%A0%20af_%20nojoki-boop-blinking-padded-toy104-4x.gif" width="150" height="150" border="10"/ >
+<a href=https://toyhou.se/15550084.chelsea><img src="https://file.garden/Zdu77rwq23DtX9qX/pony-town-really%20weird%20cat-boop-blinking-padded-4x%20(2).gif" width="150" height="150" border="10"/ ></a><a href=https://toyhou.se/19381992.sawyer><img src="https://file.garden/Zdu77rwq23DtX9qX/pony-town-%F0%9F%8C%A0%20af_%20nojoki-boop-blinking-padded-toy104-4x.gif" width="150" height="150" border="10"/ ></a>
 </p>
 <p align="center">
 hello! if you're here, you're most likely from Pony Town. I've been playing since around early 2017, but my current account isn't too old.
 <p align="center">
 My name is <b>RORY</b>, I'm a 19 y/o artist.
-My carrd has more links.
+My carrd has more links. All images are clickable :)
 </p>
 
 <p align="center"><details>
@@ -38,7 +38,7 @@ My carrd has more links.
   <p>I identify as queer, but the simplest labels I can put myself under are aroace and genderfluid. I'd like you to remember that both of these labels are under a spectrum, and what may be true for one person will not be for the next. People are fluid, and what doesn't make sense for you could be exactly what describes another. Be gentle with your fellow queer people, we are not each other's enemy.</p>
   <p>As for that, I'm not sure what else to say, really! I think it is best to be empathetic and real with yourself and those around you, <i>especially</i> now that access to the internet has desensitized people and frankly made them mean. If you happened to read this far, I hope you stay soft.</p>
   </details></p>
-  
+  <p align="center">★。／｜＼。★</p>
   <p align="center">
-  <img src="https://file.garden/Zdu77rwq23DtX9qX/wrestle-ezgif.com-resize.gif">
+  <a href=https://open.spotify.com/playlist/3h8wqFAn7IkuQ3TLy4PjO2?si=f2c06614411148b0><img src="https://file.garden/Zdu77rwq23DtX9qX/more3.png"></a>
   </p>
