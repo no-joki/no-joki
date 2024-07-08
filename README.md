@@ -24,7 +24,8 @@ My carrd has more links.
   <p><b>GENERAL:</b> art, ocs, circus works, commedia del'arte, clowns, retro/70's things, music, animation/animated movies</p>
   <p><b>MUSIC:</b> car seat headrest, scissor sisters, modest mouse, forgive durden, david bowie, the antlers, the garden, abba, billy joel</p>
   <p><b>MANGA/ANIME:</b> witch hat atelier, dungeon meshi, houseki no kuni, vinland saga, to your eternity, tokyo ghoul, the promised neverland</p>
-  <p><b>SHOWS:</b> the bear, the boys, the handmaid's tale, infinity train, the midnight gospel</p>
+  <p><b>SHOWS:</b> the bear, the boys, the handmaid's tale, infinity train, the midnight gospel, invincible</p>
+  <p>Media has increasingly become more expensive and backed by people with corrupt morals. Piracy is your friend</p>
 </details>
 </p>
 
