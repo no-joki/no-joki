@@ -40,5 +40,5 @@ My carrd has more links. All images are clickable :)
   </details></p>
   <p align="center">★。／｜＼。★</p>
   <p align="center">
-  <a href=https://open.spotify.com/playlist/3h8wqFAn7IkuQ3TLy4PjO2?si=f2c06614411148b0><img src="https://file.garden/Zdu77rwq23DtX9qX/more3.png"></a>
+  <a href=https://open.spotify.com/playlist/3h8wqFAn7IkuQ3TLy4PjO2?si=f2c06614411148b0><img src="https://file.garden/Zdu77rwq23DtX9qX/more3.png" width="808" height="332" border="10"></a>
   </p>
