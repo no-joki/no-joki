@@ -1,5 +1,5 @@
 <p align="center">
-<a href=https://toyhou.se/15550084.chelsea><img src="https://file.garden/Zdu77rwq23DtX9qX/pony-town-really%20weird%20cat-boop-blinking-padded-4x%20(2).gif" width="150" height="150" border="10"/ ></a><a href=https://toyhou.se/19381992.sawyer><img src="https://file.garden/Zdu77rwq23DtX9qX/pony-town-%F0%9F%8C%A0%20af_%20nojoki-boop-blinking-padded-toy104-4x.gif" width="150" height="150" border="10"/ ></a>
+<a title="CHELSEA'S TOYHOUSE" href=https://toyhou.se/15550084.chelsea><img src="https://file.garden/Zdu77rwq23DtX9qX/pony-town-really%20weird%20cat-boop-blinking-padded-4x%20(2).gif" width="150" height="150" border="10"/ ></a><a title="SAWYER'S TOYHOUSE" href=https://toyhou.se/19381992.sawyer><img src="https://file.garden/Zdu77rwq23DtX9qX/pony-town-%F0%9F%8C%A0%20af_%20nojoki-boop-blinking-padded-toy104-4x.gif" width="150" height="150" border="10"/ ></a>
 </p>
 <p align="center">
 hello! if you're here, you're most likely from Pony Town. I've been playing since late 2017!
@@ -40,5 +40,5 @@ My carrd has more links. All images are clickable :)
   </details></p>
   <p align="center">★。／｜＼。★</p>
   <p align="center">
-  <a href=https://open.spotify.com/playlist/3h8wqFAn7IkuQ3TLy4PjO2?si=f2c06614411148b0><img src="https://file.garden/Zdu77rwq23DtX9qX/more3.png" width="409" height="171" border="10"></a>
+  <a title="PLAYLIST ! my art <3" href=https://open.spotify.com/playlist/3h8wqFAn7IkuQ3TLy4PjO2?si=f2c06614411148b0><img src="https://file.garden/Zdu77rwq23DtX9qX/more3.png" width="409" height="171" border="10"></a>
   </p>
