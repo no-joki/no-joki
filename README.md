@@ -41,7 +41,7 @@ i have tier 2 supporter, so i will hunt you down if you're on my friendslist! it
      <p>as for labels, i've been a bit confused myself! just know that i am queer and not cishet, and if you ever see me poking fun at a label, i'm under it! the closest ones are aroace and genderfluid, though</p>
      <p>if you'd like to psychoanalyze me and are into this kinda thing, my typology is ENFP 7W6 748 sluai iee EFLV sanguine-phlegmatic sx/so but don't ask me any questions because i only did this for my friend who knows much more than me</p>
   <p>my favorite color is orange and i like oversharing online....... i have a lot of "cringy" interests so if riding the high horse is your type of deal, i fear we may not get along too well! i do not want to be the "exception," i want you to be nice to people!</p>
-   <p>ah man i dunno read my carrd i guess</p>
+   <p>i have had a crazy life at my ripe age of 19 and you are bound to learn about it if we talk about experiences</p>
   </details></p>
   <p align="center">★。／｜＼。★</p>
   <p align="center">
