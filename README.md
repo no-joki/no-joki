@@ -1,43 +1,46 @@
 <p align="center">
 <a title="CHELSEA'S TOYHOUSE" href=https://toyhou.se/15550084.chelsea><img src="https://file.garden/Zdu77rwq23DtX9qX/pony-town-really%20weird%20cat-boop-blinking-padded-4x%20(2).gif" width="150" height="150" border="10"/ ></a>
 <a title="SAWYER'S TOYHOUSE" href=https://toyhou.se/19381992.sawyer><img src="https://file.garden/Zdu77rwq23DtX9qX/pony-town-%F0%9F%8C%A0%20af_%20nojoki-boop-blinking-padded-toy104-4x.gif" width="150" height="150" border="10"/ ></a>
-</p>
 <p align="center">
-hello! if you're here, you're most likely from Pony Town. I've been playing since late 2017!
-<p align="center">
-My name is <b>RORY</b>, I'm a 19 y/o artist.
-My carrd has more links. All images are clickable :)
+MY NAME IS RORY!
+My CARRD HAS MORE ABOUT ---> ME! <---
+  <p align="center">
 </p>
 
 <p align="center"><details>
   <summary><b></b>PONY TOWN INFO</b></summary>
-  <p>I'm usually with friends on PT, or with the Dungeon Meshi fandom on 18+, who happen to overlap basically 100%. I'm open to making new friends, so feel free to pester me! I recognize people usually by whatever pony I met them as first, so forgive me if I'm blind as hell.</p>
-  <p>I try to be as friendly as possible and talk to whoever I find interesting! I tend to talk to a lot of people on there now, so keeping up with multiple conversations at once has become very hard. I don't mean to ignore anyone :') I also sit off-tab often. Not sure why, if I'm being honest.</p>
- <p>I don't really have a BYI or DNI thing other people have. As long as you're respectful I don't have an issue with you. It feels almost crazy to say this for a game bio, but I hold very progressive beliefs, so if that's something you're against, I guess it just isn't meant to be 😅. I do have to say I am strictly <b>against</b> proship/profiction and the likes, since that seems to be all too common for some reason and I'd rather just let it be known immediately LOL . I'm all for heavy topics in stories <b>done well</b>, but the types of people who use the second label are usually <i>not</i> that. I don't want to gamble on if someone I had been talking to is <b>cool with</b> pedophilia/incest/etc on the low or simply believes that creatives should have freedom to talk about deep/taboo topics. I'm not one for online discourse, though, and I will just block you if I have a problem. I advise you to do the same.<p>
-  <p>On a similar note, although I'm 19, I will try to steer away from any NSFW related topics. I'm okay with one-off jokes and talking surface level of things, but otherwise, I will just not engage in it if it continues. If you're a friend over 18 reading this, that doesn't apply, go ahead and be freaks. Anyway, I don't mean to be a priss, it's just not something I necessarily like to talk about with people I don't know well/strangers. I won't hide or block for that unless it keeps being targetted towards me or a friend who dislikes it.</p>
-  <p>Either way, I am not one to make a big deal of something, and writing this out has made me feel very online! I don't know how to feel about that! Please just be normal!</p>
+HELLO!!!! I'm usually running around on ponytown alone or with <a href="https://github.com/windch1mes">chime</a> or sitting justtt slightly under spawn on 18+! i like to do bits and i accidentally end up roleplaying 90% of the time! i don't like making people uncomfortable, so most of the time this stuff is very lighthearted
+</p>
+i have tier 2 supporter, so i will hunt you down if you're on my friendslist! it is a Threat! anyway i really enjoy talking to people on PT, please don't be frightened by me or friends!!!! i will only struggle if i can't meet your energy HAHA
+</p>
+  basic stuff like c+h is cool! i'm A-OKAY! with inspiration from my ponies but please don't go out and fully copy OCs (since it has happened?) (i can't believe i have an evil doppelganger on ponytown) on the Heavier side, i will block easily if you're overly sexual or straightup mean. there's better ways to be funny guys
+</p>
+    other than all that, i don't take PT too seriously! it's just another chatroom online! here's some of my most used ponies, but i have over 300 of them!!
+</p>
+  <p align="center">
+<a title="WINSLOW / FURSONA"><img src="https://file.garden/Zdu77rwq23DtX9qX/pony-town-%E2%98%84%20portrait%20of%20the%20artist-trot-blinking-fixed-2x.gif"></a><a title="ROOSTER / PONYSONA"><img src="https://file.garden/Zdu77rwq23DtX9qX/pony-town-%E2%98%84%20rooster%20_%20ponysona-trot-blinking-fixed-toy121-2x.gif"></a><a title="ME! PERSONA"><img src="https://file.garden/Zdu77rwq23DtX9qX/pony-town-%E2%98%80%20I'M%20AT%20YOUR%20BECK%20AND%20CALL!-trot-blinking-fixed-2x.gif"><a title="TEMMIE!"><img src="https://file.garden/Zdu77rwq23DtX9qX/pony-town-temmers-trot-blinking-fixed-ponyplush-2x.gif"><a title="..AND BAKUGO!"><img src="https://file.garden/Zdu77rwq23DtX9qX/pony-town-ouuughhhhhhhh-trot-blinking-fixed-2x.gif">
+<p align="center">
 <center></details></center>
 <p align="center">
 
 <p align="center"><details>
 <summary>INTERESTS</summary>
-  <p>I'm only going to list main/favorite interests because otherwise this section would be very long wahaha</p>
-  <p><b>GENERAL:</b> art, ocs, circus works, commedia del'arte, clowns, retro/70's things, music, animation/animated movies</p>
+  <p>I'm only going to list main/favorite interests because otherwise this section would be very long!!!! check out my carrd for more indepth stuff</p>
+  <p><b>GENERAL:</b> art, ocs, circus works, commedia del'arte, clowns, retro/vintage/70's things, music, animation/animated movies</p>
   <p><b>MUSIC:</b> car seat headrest, scissor sisters, modest mouse, forgive durden, david bowie, the antlers, the garden, abba, billy joel</p>
   <p><b>MANGA/ANIME:</b> witch hat atelier, dungeon meshi, d.gray-man, fullmetal alchemist: brotherhood, houseki no kuni, vinland saga, to your eternity, tokyo ghoul, the promised neverland</p>
-  <p><b>SHOWS:</b> the bear, the boys, the handmaid's tale, infinity train, the midnight gospel, invincible, smiling friends</p>
-  <p>Media has increasingly become more expensive and backed by people with corrupt morals. Piracy is your friend, and as the <a href="https://twitter.com/HakitaDev/status/1797245014268891236">creator of Ultrakill has said</a>; culture shouldn't exist just for those who can afford it. Support those who deserve it, but remember that not everything/everyone is completely perfect. Searching for that will exhaust you, and it's okay to enjoy things with a critical eye.</p>
+  <p><b>SHOWS:</b> lego monkie kid, the bear, the boys, the handmaid's tale, infinity train, the midnight gospel, invincible, smiling friends</p>
 </details>
 </p>
 
 <p align="center"><details>
 <summary>ABOUT ME</summary>
-  <p>I'd like to think I'm an open book when it comes to learning about me through general chat, but auhhh I'm not too interesting</p>
-  <p>  I'm physically disabled, having scoliosis and joint related issues. Myself and others suspect I may have hEDS, (<a href="https://www.ehlers-danlos.org/what-is-eds/information-on-eds/hypermobile-eds-and-hypermobility-spectrum-disorders/">hypermobile ehlers-danlos syndrome</a>) but the process to get that diagnosed is tedious and often overlooked in general checkups. Because of this, I have chronic pain and I can't stand for long, which is why I'm online often :) It usually doesn't show through online talks, but I ask of you to be patient with me if I do not respond in my usual tone. It is aggravating when your body doesn't work the way you'd like it to, unfortunately. Being open about it means a lot to me, and I'd love to talk to other disabled people on PT if it ever comes up!</p>
-<p>  I am also autistic with inattentive-ADHD, I don't think I have to say much about that now that both of those are more well known. If you're curious, scoliosis and hEDS are comorbid with the two of them. To note, I do not need tone-tags, so please don't worry about using them unless you personally prefer to use them. If I'm confused, I'll just ask!</p>
-  <p>  Art in every form has been a special interest of mine since I was small, and is generally all I talk about. I currently use Clip Studio and the <a href="https://www.xp-pen.com/store/buy/artist-12.html?gad_source=1&gclid=CjwKCAjwnK60BhA9EiwAmpHZwxfurUXNpseQRbPNJEdKqw78qHP35xUH2TQ2Y_bHrsw6hAwDSNgjaBoCKYgQAvD_BwE">XP Pen Artist 12 tablet</a>, which I would recommend 100% if you're looking for a "cheap" display tablet. I've been doing digital art for about 10 years now, but only 7 with a tablet. I started off with Animal Jam painting studio, then to MS paint MLP bases wahahaaha,, As for art today, I'm most active on Instagram, and sometimes Twitter, which are linked to this Github.</p>
-  <p>I identify as queer, but the simplest labels I can put myself under are aroace and genderfluid. I'd like you to remember that both of these labels are under a spectrum, and what may be true for one person will not be for the next. People are fluid, and what doesn't make sense for you could be exactly what describes another. Be gentle with your fellow queer people, we are not each other's enemy.</p>
-  <p>As for that, I'm not sure what else to say, really! I think it is best to be empathetic and real with yourself and those around you, <i>especially</i> now that access to the internet has desensitized people and frankly made them mean. If you happened to read this far, I hope you stay soft.</p>
+  <p>you wanna know about lil ol me? aw shucks</p>
+    <p>WELL TRULY! i do not know what to say! (is going to say things) i'm physically disabled, plus audhd! there's a lot of comorbidities here, but my biggest problems are inattention and fatigue. that may make me seem a bit disinterested at times, but i promise it's not!</p>
+     <p>as for labels, i've been a bit confused myself! just know that i am queer and not cishet, and if you ever see me poking fun at a label, i'm under it!</p>
+     <p>if you'd like to psychoanalyze me and are into this kinda thing, my typology is ENFP 7W6 748 sluai iee EFLV sanguine-phlegmatic sx/so but don't ask me any questions because i only did this for my friend who knows much more than me</p>
+  <p>my favorite color is orange and i like oversharing online</p>
+   <p>ah man i dunno read my carrd i guess</p>
   </details></p>
   <p align="center">★。／｜＼。★</p>
   <p align="center">
