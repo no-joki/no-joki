@@ -5,6 +5,7 @@
 MY NAME IS RORY!
 My CARRD HAS MORE ABOUT ---> ME! <---
   <p align="center">
+    i post art on INSTA/TWT! i also have an atabook now, so feel free to message me on there :3
 </p>
 
 <p align="center"><details>
