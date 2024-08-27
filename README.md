@@ -10,7 +10,7 @@ My CARRD HAS MORE ABOUT ---> ME! <---
 
 <p align="center"><details>
   <summary><b></b>PONY TOWN INFO</b></summary>
-HELLO!!!! I'm usually running around on ponytown alone or with <a href="https://github.com/windch1mes">chime</a> or sitting justtt slightly under spawn on 18+! i like to do bits and i accidentally end up roleplaying 90% of the time! i don't like making people uncomfortable, so most of the time this stuff is very lighthearted
+HELLO!!!! I'm usually running around on ponytown alone or with <a href="https://github.com/windch1mes">chime</a>/<a href="https://x.com/IllyDood">liv</a> or sitting justtt slightly under spawn on 18+! i like to do bits and i accidentally end up roleplaying 90% of the time! i don't like making people uncomfortable, so most of the time this stuff is very lighthearted
 </p>
 i have tier 2 supporter, so i will hunt you down if you're on my friendslist! it is a Threat! anyway i really enjoy talking to people on PT, please don't be frightened by me or friends!!!! i will only struggle if i can't meet your energy HAHA
 </p>
