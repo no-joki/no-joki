@@ -5,7 +5,7 @@
 MY NAME IS RORY!
 My CARRD HAS MORE ABOUT ---> ME! <---
   <p align="center">
-    i post art on INSTA/TWT! i also have an atabook now, so feel free to message me on there :3
+    i post art on INSTA/TWT! i also have an atabook now, so feel free to sign it :3 Actually don't feel free to. I'm Forcing You Please Don't Be Afraid Of Me. i have over a thousand hours on ponytown i am a loser there is nothing to be intimidated by
 </p>
 
 <p align="center"><details>
