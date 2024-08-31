@@ -14,7 +14,7 @@ HELLO!!!! I'm usually running around on ponytown alone or with <a href="https://
 </p>
 i have tier 2 supporter, so i will hunt you down if you're on my friendslist! it is a Threat! anyway i really enjoy talking to people on PT, please don't be frightened by me or friends!!!! i will only struggle if i can't meet your energy HAHA
 </p>
-  basic stuff like c+h is cool! i'm A-OKAY! with inspiration from my ponies but please don't go out and fully copy OCs (since it has happened?) (i can't believe i have an evil doppelganger on ponytown) on the Heavier side, i will block easily if you're overly sexual or straightup mean. there's better ways to be funny guys
+  basic stuff like c+h is cool! i'm A-OKAY! with inspiration from my ponies but please don't go out and fully copy OCs (since it has happened?) (i can't believe i have an evil doppelganger on ponytown) on the Heavier side, i will block easily if you're overly sexual or straightup mean. (or if you are just......annoyingly Online Sorry) there's better ways to be funny guys
 </p>
   i have a good amount of fandom ponies, but i'm not always too interested in talking about the media they derive from indepth.. if you recognize one of them, feel free to bring it up :D
 </p>
