@@ -5,7 +5,7 @@
 MY NAME IS RORY!
 My CARRD HAS MORE ABOUT ---> ME! <---
   <p align="center">
-    i post art on INSTA/TWT! i also have an atabook now, so feel free to sign it :3 Actually don't feel free to. I'm Forcing You Please Don't Be Afraid Of Me. i have over a thousand hours on ponytown i am a loser there is nothing to be intimidated by
+    i post art on INSTA/TWT! Please Don't Be Afraid Of Me. i have over a thousand hours on ponytown i am a loser there is nothing to be intimidated by
 </p>
 
 <p align="center"><details>
@@ -14,7 +14,7 @@ HELLO!!!! I'm usually running around on ponytown alone or with <a href="https://
 </p>
 i have tier 2 supporter, so i will hunt you down if you're on my friendslist! it is a Threat! anyway i really enjoy talking to people on PT, please don't be frightened by me or friends!!!! i will only struggle if i can't meet your energy HAHA
 </p>
-  basic stuff like c+h is cool! i'm A-OKAY! with inspiration from my ponies but please don't go out and fully copy OCs (since it has happened?) (i can't believe i have an evil doppelganger on ponytown) on the Heavier side, i will block easily if you're overly sexual or straightup mean. (or if you are just......annoyingly Online Sorry) there's better ways to be funny guys
+  basic stuff like c+h is cool! i'm A-OKAY with inspiration from my ponies but please don't go out and fully copy OCs (since it has happened?) (i can't believe i have an evil doppelganger on ponytown) on the Heavier side, i will block easily if you're overly sexual or straightup mean. (or if you are just......annoyingly Online Sorry) there's better ways to be funny guys
 </p>
   i have a good amount of fandom ponies, but i'm not always too interested in talking about the media they derive from indepth.. if you recognize one of them, feel free to bring it up :D
 </p>
@@ -39,8 +39,8 @@ i have tier 2 supporter, so i will hunt you down if you're on my friendslist! it
 <p align="center"><details>
 <summary>ABOUT ME</summary>
   <p>you wanna know about lil ol me? aw shucks</p>
-    <p>WELL TRULY! i do not know what to say! (is going to say things) i'm physically disabled, plus audhd! there's a lot of comorbidities here, but my biggest problems are inattention and fatigue. that may make me seem a bit disinterested at times, but i promise it's not!</p>
-     <p>as for labels, i've been a bit confused myself! just know that i am queer and not cishet, and if you ever see me poking fun at a label, i'm under it! the closest ones are aroace and genderfluid, though</p>
+    <p>WELL TRULY! i do not know what to say! (is going to say things) i'm physically disabled, plus audhd! there's a lot of comorbidities here, but my biggest problems are inattention and fatigue. that may make me seem a bit disinterested at times, but i promise it's not</p>
+     <p>as for labels, i'm queer, but aroace and genderfluid/nonbinary fit best.</p>
      <p>if you'd like to psychoanalyze me and are into this kinda thing, my typology is ENFP 7W6 748 sluai iee EFLV sanguine-phlegmatic sx/so but don't ask me any questions because i only did this for my friend who knows much more than me</p>
   <p>my favorite color is orange and i like oversharing online....... i have a lot of "cringy" interests so if riding the high horse is your type of deal, i fear we may not get along too well! i do not want to be the "exception," i want you to be nice to people!</p>
    <p>i have had a crazy life at my ripe age of 19 and you are bound to learn about it if we talk about experiences</p>
