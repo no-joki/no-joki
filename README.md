@@ -45,6 +45,12 @@ i have tier 2 supporter, so i will hunt you down if you're on my friendslist! it
   <p>my favorite color is orange and i like oversharing online....... i have a lot of "cringy" interests so if riding the high horse is your type of deal, i fear we may not get along too well! i do not want to be the "exception," i want you to be nice to people!</p>
    <p>i have had a crazy life at my ripe age of 19 and you are bound to learn about it if we talk about experiences</p>
   </details></p>
+  <p align="center"><details>
+  <summary><b></b>look at my images boy</b></summary>
+    <p>unfunny ponytown shenanigans with friends because i cant believe i have them</p>
+    <img src="https://imgur.com/WycYCPv.png"> <img src="https://imgur.com/Bh3I9L3.png"> <img src="https://imgur.com/Q0S7goq.png"> <img src="https://imgur.com/FjUbcw5.png"> <img src="https://imgur.com/HO1DPJ3.png"> <img src="https://imgur.com/2hkLiaH.png"> <img src="https://imgur.com/HJXtkIu.png"> <img src="https://imgur.com/FyRutIx.png"> <img src="https://imgur.com/rbGt5QN.png"> <img src="https://imgur.com/H39yOjb.png"> <img src="https://imgur.com/mlQFQg0.png"> <img src="https://imgur.com/LPVD4fg.png"> <img src="https://imgur.com/U9PVhy0.png"> <img src="https://imgur.com/pEG2JTZ.png"> <img src=""> <img src="https://imgur.com/ef7BDrw.png"> <img src="https://imgur.com/UncXv0K.png"> <img src="https://imgur.com/uFPWZlD.png"> <img src="https://imgur.com/6uHPFC4.png"> <img src="https://imgur.com/7jJ5Ama.png"> <img src="https://imgur.com/8oty4Ov.png"> <img src="https://imgur.com/xSa8z2T.png"> <img src="https://imgur.com/fPNEjo1.png"> <img src="https://imgur.com/98dCdoe.png"> <img src="https://imgur.com/ojaaWVK.png"> <img src="https://imgur.com/PViGza3.png"> <img src="https://imgur.com/ppLPRGY.png"> <img src="https://imgur.com/ifIrNoI.png"> <img src="https://imgur.com/TaMLMw8.png"> <img src="https://imgur.com/6LxkIGr"> <img src="https://imgur.com/yhnPi8U.png"> <img src="https://imgur.com/VkX1Yby.png"> <img src="https://imgur.com/qeKb0wt.png">
+    
+  </details></p>
   <p align="center">★。／｜＼。★</p>
   <p align="center">
   <a title="PLAYLIST ! my art <3" href=https://open.spotify.com/playlist/3h8wqFAn7IkuQ3TLy4PjO2?si=f2c06614411148b0><img src="https://file.garden/Zdu77rwq23DtX9qX/more3.png" width="409" height="171" border="10"></a>
