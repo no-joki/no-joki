@@ -8,7 +8,7 @@ My CARRD HAS MORE ABOUT ---> ME! <---
     i post art on INSTA/TWT! Please Don't Be Afraid Of Me. i have over a thousand hours on ponytown i am a loser there is nothing to be intimidated by
 </p>
 <p align="center">
-    i was going to make a strawpage because some people have asked but Man that shit is hard. <a href="https://nojoki.straw.page">Here it is though</a>. it's surely something
+    SPENT MORE THAN 5 MINUTES ON A <a href="https://nojoki.straw.page">STRAWPAGE</a>! I'M THE WINNER!
 </p>
 
 
