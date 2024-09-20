@@ -1,4 +1,14 @@
 <p align="center">
+my friend dew has been through a devastating house fire, any help for him is greatly appreciated! even just sharing a link around means everything to me!! he is very close to his *first* goal to get back on his feet :)
+</p>
+<p align="center">
+<a href="https://www.gofundme.com/f/help-dew-rebuild-after-devastating-fire">GOFUNDME</a> | <a href="https://ko-fi.com/dewdroppedz">KO-FI</a> | <a href="https://www.paypal.com/paypalme/LeonRizik">PAYPAL</a> | <a href="https://x.com/seriialkiillerr/status/1836259838831030673">TWITTER</a>
+</p>
+<p align="center">
+Twitter link includes people who have comms open for the fund!!
+</p>
+
+<p align="center">
 <a title="CHELSEA'S TOYHOUSE" href=https://toyhou.se/15550084.chelsea><img src="https://file.garden/Zdu77rwq23DtX9qX/pony-town-really%20weird%20cat-boop-blinking-padded-4x%20(2).gif" width="150" height="150" border="10"/ ></a>
 <a title="SAWYER'S TOYHOUSE" href=https://toyhou.se/19381992.sawyer><img src="https://file.garden/Zdu77rwq23DtX9qX/pony-town-%F0%9F%8C%A0%20af_%20nojoki-boop-blinking-padded-toy104-4x.gif" width="150" height="150" border="10"/ ></a>
 <p align="center">
