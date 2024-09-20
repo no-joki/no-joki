@@ -32,10 +32,10 @@ i have tier 2 supporter, so i will hunt you down if you're on my friendslist! it
 </p>
   i have a good amount of fandom ponies, but i'm not always too interested in talking about the media they derive from indepth.. if you recognize one of them, feel free to bring it up :D
 </p>
-    other than all that, i don't take PT too seriously! it's just another chatroom online! here's some of my most used ponies, but i have over 300 of them!!
+    other than all that, i don't take PT too seriously! it's just another chatroom online!
 </p>
   <p align="center">
-<a title="WINSLOW / FURSONA"><img src="https://file.garden/Zdu77rwq23DtX9qX/pony-town-%E2%98%84%20portrait%20of%20the%20artist-trot-blinking-fixed-2x.gif"></a><a title="ROOSTER / PONYSONA"><img src="https://file.garden/Zdu77rwq23DtX9qX/pony-town-%E2%98%84%20rooster%20_%20ponysona-trot-blinking-fixed-toy121-2x.gif"></a><a title="ME! PERSONA"><img src="https://file.garden/Zdu77rwq23DtX9qX/pony-town-%E2%98%80%20I'M%20AT%20YOUR%20BECK%20AND%20CALL!-trot-blinking-fixed-2x.gif"><a title="TEMMIE!"><img src="https://file.garden/Zdu77rwq23DtX9qX/pony-town-temmers-trot-blinking-fixed-ponyplush-2x.gif"><a title="..AND BAKUGO!"><img src="https://file.garden/Zdu77rwq23DtX9qX/pony-town-ouuughhhhhhhh-trot-blinking-fixed-2x.gif">
+<a title="eeny"><img src="https://file.garden/Zdu77rwq23DtX9qX/eeny2">  <a title="barayas"><img src="https://file.garden/Zdu77rwq23DtX9qX/spider%3F">  <a title="winslow"><img src="https://file.garden/Zdu77rwq23DtX9qX/winne">  <a title="ahrima"><img src="https://file.garden/Zdu77rwq23DtX9qX/ahri">
 <p align="center">
 <center></details></center>
 <p align="center">
