@@ -32,6 +32,11 @@ i really enjoy talking to people on PT, please don't be frightened by me or frie
   <p align="center">
 <a title="eeny"><img src="https://file.garden/Zdu77rwq23DtX9qX/eeny2">  <a title="barayas"><img src="https://file.garden/Zdu77rwq23DtX9qX/spider%3F">  <a title="winslow"><img src="https://file.garden/Zdu77rwq23DtX9qX/winne">  <a title="ahrima"><img src="https://file.garden/Zdu77rwq23DtX9qX/ahri">
 <p align="center">
+   people tend to *really* like my fursona winslow, so <a href="https://toyhou.se/25558405.winslow/gallery">here</a> is what she actually looks like :)
+</p>
+  <p align="center">
+  <a title="winslow"><img src="https://i.imgur.com/R5C79Um.png" width="316" height="198" / >
+  </p>
 <center></details></center>
 <p align="center">
 
