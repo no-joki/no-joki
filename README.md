@@ -27,7 +27,7 @@ i really enjoy talking to people on PT, please don't be frightened by me or frie
 </p>
   on the Heavier side, i will block easily if you're sexual often, straightup mean, or argue a lot in public chat. they're never too personal, if at all, but i don't wish to see stuff like this while playing. sometimes these blocks are just me being mildly uncomfortable with the topic or tone and mean nothing else. although social, i'm very picky with those i'll go up to on my own.
 </p>
-    other than all that, i don't take PT too seriously! it's just another chatroom online! i'm on often as i'm phsyically disabled/chronically ill and value talking to people outside of my usual circle, so feel free to say hi :) i've got much to say. Most of the time atleast..
+    other than all that, i don't take PT too seriously! it's just another chatroom online! i'm on often as i'm physically disabled/chronically ill and value talking to people outside of my usual circle, so feel free to say hi :) i've got much to say. Most of the time atleast..
 </p>
   <p align="center">
 <a title="eeny"><img src="https://file.garden/Zdu77rwq23DtX9qX/eeny2">  <a title="barayas"><img src="https://file.garden/Zdu77rwq23DtX9qX/spider%3F">  <a title="winslow"><img src="https://file.garden/Zdu77rwq23DtX9qX/winne">  <a title="ahrima"><img src="https://file.garden/Zdu77rwq23DtX9qX/ahri">
