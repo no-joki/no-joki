@@ -53,7 +53,7 @@ i really enjoy talking to people on PT, please don't be frightened by me or frie
 <p align="center"><details>
 <summary>ABOUT ME</summary>
   <p>you wanna know about lil ol me? aw shucks</p>
-    <p>WELL TRULY! i do not know what to say! (is going to say things) i'm physically disabled, plus audhd! there's a lot of comorbidities here, but my biggest problems are inattention and fatigue. that may make me seem a bit disinterested at times, but i promise it's not</p>
+    <p>WELL TRULY! i do not know what to say! (is going to say things) i'm physically disabled, plus audhd! my biggest problems are inattention and fatigue. that may make me seem a bit disinterested at times, but i promise it's not on purpose :'). i have scoliosis and very most likely hEDS. hEDS causes many other issues aside from being a "joint" disease, so i ask of you to stay patient with me if i seem a little off ⭐ my body likes to fight me and it Wins</p>
      <p>as for labels, i'm queer, but aroace and genderfluid/nonbinary fit best.</p>
   <p>my favorite color is orange and i like oversharing online....... hmmmmmm.... what else what else. i don't take mean-spirited jokes about a harmless person lightly. the internet has convinced some people it's okay to be mean. i fully accept being sensitive and there is nothing you can do about it</p>
    <p>i have had a crazy life at my ripe age of 19 and you are bound to learn about it if we talk about experiences</p>
