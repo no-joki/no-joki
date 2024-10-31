@@ -10,9 +10,9 @@ i'm rory! i'm an artist with many interests. please do not be afraid of me. belo
   <summary><b></b>PONY TOWN INFO ----- ⭐</b></summary>
 HELLO!!!! I'm usually running around on ponytown alone or with <a href="https://github.com/MouthHole">liv</a>/<a href="https://github.com/grubberglubber">dumaya</a>. i'm not on as much anymore and may miss a lot if i am on.... but i really enjoy talking to people on PT, please don't be frightened by me or friends!!! i will only struggle if i can't meet your energy. i mostly like talking about art in any form
 </p>
-  on the Heavier side, i will block easily if you're sexual often, straightup mean, or argue a lot in public chat. they're never too personal, if at all, but i don't wish to see stuff like this while playing. sometimes these blocks are just me being mildly uncomfortable with the topic or tone and mean nothing else. although social, i'm very picky with those i'll go up to on my own.
+  on the Heavier side, i will block easily if you're sexual often, straightup mean, or argue a lot in public chat. they're never too personal, if at all, but i don't wish to see stuff like this while playing. sometimes these blocks are just me being mildly uncomfortable with the topic or tone and mean nothing else. although social, i'm very picky with those i'll go up to on my own. please remember i am a young adult. sometimes i play on safe just to wander and look at pretty ponies- but i am not looking for any longterm friends there. i'm okay with passing conversation :-)
 </p>
-    other than all that, i don't take PT too seriously! it's just another chatroom online! i'm on often as i'm physically disabled/chronically ill and value talking to people outside of my usual circle, so feel free to say hi :) i've got much to say. Most of the time atleast..
+    other than all that, i don't take PT too seriously! feel free to say hi :) i've got much to say, usually
 </p>
   <p align="center">
 <center></details></center>
