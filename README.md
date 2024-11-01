@@ -22,7 +22,7 @@ HELLO!!!! I'm usually running around on ponytown alone or with <a href="https://
 <summary>INTERESTS ----- ⭐</summary>
   <p>please god man just talk to me about anything regarding art. i love art. i love music i love drawing i love performances i love movies i love the history and symbolism in art i love aoughhhI LOVE ART CHARLIE!!!!!!</p>
   <p>i also like animals.... and anything vintage/retro.. and psychology..</p>
-  <p>love my ocs of  course............ oc artists out there you get it</p>
+  <p>love my ocs of  course............ oc artists out there you get it. i also like will toledo. you will learn of this very quickly</p>
 </details>
 </p>
 
