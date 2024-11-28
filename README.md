@@ -25,7 +25,9 @@
  
 <i><a href="https://github.com/no-joki">@teens-of-denial</a> is also me</i>
 </p>
-
+ <h6 align="center">
+  if you happen to recognize me from one of my socials NO YOU DON'T
+</p>
 </h5>
 
 
