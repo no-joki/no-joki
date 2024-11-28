@@ -46,6 +46,6 @@
   if any of that bothers you, i recommend you block me.. i am not looking for altercations and i will simply just mute/block and move on. do what is healthy for you :)
 </p>
 <p align="center">
-<a title="TEENS OF DENIAL" href=https://open.spotify.com/album/3KpYyDP8q8sUBxatHaYEsP?si=KqcvuiW4TAuUIUsawAREig><img src="https://file.garden/Zdu77rwq23DtX9qX/20241026_181747.jpg" width="544" height="541"></a>
+<a title="not true" href=https://file.garden/Zdu77rwq23DtX9qX/homo><img src="https://file.garden/Zdu77rwq23DtX9qX/homo" width="402" height="202"></a>
 <p align="center">
 </details>
