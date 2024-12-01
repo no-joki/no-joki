@@ -42,10 +42,10 @@
   i block very easily. i play ponytown to talk to like-minded people and have fun with friends.. if we were never going to talk in the first place, it don't matter! i am sociable, but by no means do i want to be friends/interact with just anyone. though, i mainly block over 3 things:
 </p>
     <h6 align="center">
-      1. mean-spirited, overall vindictive or aggressive 2. profic/proship or "neutral" 3. overly sexual *often* (gooner type humor/"aesthetic"..)
+      1. mean-spirited, overall vindictive or aggressive 2. profic/proship or "neutral" (why do i have to say this.. come on now) 3. overly sexual (gooner type humor/"aesthetic".. or constantly talking about sex in passing conversations)
       </p>
       <h6 align="center">
-  if any of that bothers you, i recommend you block me.. i am not looking for altercations and i will simply just mute/block and move on. do what is healthy for you :)
+  if any of that bothers you, i recommend you block me.. i am not looking for altercations and i will simply just mute/block and move on. i prefer to talk to more mature people lol
 </p>
 <p align="center">
 <a title="not true" href=https://file.garden/Zdu77rwq23DtX9qX/homo><img src="https://file.garden/Zdu77rwq23DtX9qX/homo" width="402" height="202"></a>
