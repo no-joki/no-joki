@@ -16,7 +16,7 @@
   as for ponytown, don't be afraid of me! my only ask is to have common decency. too many people are cruel online.
 </p>
 <p align="center">
-  some basic stuffs: i do art: digital/traditional illustration and clay sculpting! i'm also physically disabled + audhd, keep these in mind when interacting with me longterm. i'm not always available due to simply feeling Awful (i am so sorry) i promise i am not quiet nor shy, just doing something else probably!
+  some basic stuffs: i do art: digital/traditional illustration, character writing and clay sculpting! i'm also physically disabled + audhd, keep these in mind when interacting with me longterm. i'm not always available due to simply feeling Awful (i am so sorry) i promise i am not quiet nor shy, just doing something else probably!
 </p>
 <p align="center">
   i have many interests, but most of them focus on art. majority of my attention is on ocs specifically, but outside of that, i love exploring symbolism, character thought processes, and animated movies as a whole :) as for less involved interests, i enjoy circus works, anything vintage, and psychology.
