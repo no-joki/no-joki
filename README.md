@@ -21,10 +21,6 @@
 <p align="center">
   i have many interests, but most of them focus on art. majority of my attention is on ocs specifically, but outside of that, i love exploring symbolism, character thought processes, and animated movies as a whole :) as for less involved interests, i enjoy circus works, anything vintage, and psychology.
   </p>
-  <h5 align="center">
- 
-<i><a href="https://github.com/no-joki">@teens-of-denial</a> is also me</i>
-</p>
  <h6 align="center">
   my carrd has a little more info. not missing out on much
 </p>
