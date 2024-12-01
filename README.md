@@ -41,7 +41,7 @@
       1. mean-spirited, overall vindictive or aggressive 2. profic/proship or "neutral" (why do i have to say this.. come on now) 3. overly sexual (gooner type humor/"aesthetic".. or constantly talking about sex in passing conversations)
       </p>
       <h6 align="center">
-  if any of that bothers you, i recommend you block me.. i am not looking for altercations and i will simply mute/block and move on. i prefer to talk to more mature people lol
+  if any of that bothers you, i recommend you block me.. i am not looking for altercations and i will simply mute/block and move on. seeking out arguments online is pathetic to me if i'm real
 </p>
 <p align="center">
 <a title="not true" href=https://file.garden/Zdu77rwq23DtX9qX/homo><img src="https://file.garden/Zdu77rwq23DtX9qX/homo" width="402" height="202"></a>
