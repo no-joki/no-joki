@@ -22,7 +22,7 @@
   i have many interests, but most of them focus on art. majority of my attention is on ocs specifically, but outside of that, i love exploring symbolism, character thought processes, and animated movies as a whole :) as for less involved interests, i enjoy circus works, anything vintage, and psychology.
   </p>
  <h6 align="center">
-  my carrd has a little more info. not missing out on much
+ <a href="https://nojoki.carrd.co/#">my carrd has a little more info. not missing out on much</a>
 </p>
 </h5>
 
