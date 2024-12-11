@@ -19,7 +19,7 @@
   for some basic info, i do art: digital/traditional illustration, character writing and clay sculpting! i am also a furry but i draw humans much more than them lol i promise i fucks with em. <a href="https://toyhou.se/nojoki/characters/folder:all">look at most of my characters here</a>
 
 <p align="center">
-as for other stuff you should know, i'm physically disabled + audhd, keep these in mind when interacting with me longterm. i'm not always available due to simply feeling Awful or i will forget to respond (i am so sorry) i promise i am not quiet nor shy, just doing something else probably! 
+as for other stuff you should know, i'm <a href="https://jeanniedibon.com/eds-and-scoliosis/#:~:text=29%25%20of%20patients%20with%20hEDS,found%20in%2029%25%20of%20patients.">physically disabled</a> + audhd, keep these in mind when interacting with me longterm. i'm not always available due to simply feeling Awful or i will forget to respond (i am so sorry) i promise i am not quiet nor shy, just doing something else probably! 
 </p>
 <p align="center">
   i have many interests, but most of them center on art. majority of my attention is on ocs specifically, but outside of that, i love exploring symbolism, character thought processes, and animated movies as a whole :) as for less involved interests, i enjoy circus works, anything vintage, and learning about psychology/physical disabilites!
