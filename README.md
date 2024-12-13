@@ -16,7 +16,7 @@
   for some basic info, i do art: digital/traditional illustration, character writing and clay sculpting! i'm also a furry but i draw humans more often than not. look at most of my characters <a href="https://toyhou.se/nojoki/characters/folder:all">here</a>
 
 <p align="center">
-as for other stuff about me, i'm physically <a href="https://scoliosis3dc.com/2013/12/10/ehlers-danlos-syndrome-and-scoliosis/"> disabled</a> + audhd, keep these in mind when interacting with me longterm. what i choose to share publicly about my health is miniscule compared to what i actually experience, so please be understanding if my behavior is irregular. my body likes to fight me in a multitude of ways and sometimes it wins
+as for other stuff about me, i'm physically <a href="https://scoliosis3dc.com/2013/12/10/ehlers-danlos-syndrome-and-scoliosis/"> disabled</a> + audhd, keep these in mind when interacting with me longterm. what i choose to share publicly about my health is miniscule compared to what i actually experience, so please be understanding if my behavior is irregular. sometimes i also go afk and stop responding suddenly because of it... my body likes to fight me in a multitude of ways and it occasionally wins
 </p>
 
  <h6 align="center">
@@ -36,7 +36,7 @@ as for other stuff about me, i'm physically <a href="https://scoliosis3dc.com/20
 <p align="center"><details>
 <summary></summary>
 <h6 align="center">
-  otherwise, i protect my peace heavily. people who use the terms proship/profic/radqueer/propara + whatever other dogwhistles and those who use the r slur will be blocked with no exceptions. i hate to be negative, but i don't open the game to share a space with these types of people. i'm also likely to block or mute those who hold mean-spirited tones to mundane things and those who are exceedingly sexual in casual conversation. if you happen have issues with this, we were never going to talk nor be friends in the first place. don't worry bout it
+  otherwise, i protect my peace heavily. people who use the terms proship/profic/radqueer/propara + whatever other dogwhistles and those who use the r slur will be blocked with no exceptions. i hate to be negative, but i don't open the game to share a space with these types of people. i'm also likely to block or mute those who hold a mean-spirited tone to mundane things and those who are exceedingly sexual in casual conversation. if you happen to have issues with this, we were never going to talk nor be friends in the first place. don't worry bout it
 </p>
   </h6>
 <p align="center">
