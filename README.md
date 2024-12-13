@@ -19,7 +19,7 @@
 as for other stuff you should know, i'm physically <a href="https://jeanniedibon.com/eds-and-scoliosis/#:~:text=29%25%20of%20patients%20with%20hEDS,found%20in%2029%25%20of%20patients."> disabled</a> + audhd, keep these in mind when interacting with me longterm. what i choose to share publicly about my health is very little of what i actually experience, so please be understanding if my behavior is irregular
 </p>
  <h6 align="center">
- <a href="https://nojoki.carrd.co/#">my carrd has a little more info. not missing out on much</a>
+ <a href="https://nojoki.carrd.co/#">my carrd has a little more info</a>
 </p>
 </h5>
 
