@@ -16,7 +16,7 @@
   for some basic info, i do art: digital/traditional illustration, character writing and clay sculpting! i'm also a furry but i draw humans more often than not. look at most of my characters <a href="https://toyhou.se/nojoki/characters/folder:all">here</a>
 
 <p align="center">
-as for other stuff about me, i'm physically <a href="https://scoliosis3dc.com/2013/12/10/ehlers-danlos-syndrome-and-scoliosis/"> disabled</a> + audhd, keep these in mind when interacting with me longterm. what i choose to share publicly about my health is very little of what i actually experience, so please be understanding if my behavior is irregular. my body likes to fight me in a multitude of ways and sometimes it wins
+as for other stuff about me, i'm physically <a href="https://scoliosis3dc.com/2013/12/10/ehlers-danlos-syndrome-and-scoliosis/"> disabled</a> + audhd, keep these in mind when interacting with me longterm. what i choose to share publicly about my health is miniscule compared to what i actually experience, so please be understanding if my behavior is irregular. my body likes to fight me in a multitude of ways and sometimes it wins
 </p>
 
  <h6 align="center">
