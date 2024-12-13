@@ -1,5 +1,5 @@
 <p align="center">
-<a title="my art" href=https://open.spotify.com/album/3KpYyDP8q8sUBxatHaYEsP?si=Dk_MmskkR9OiDZgGgahQEA><img src="https://file.garden/Zdu77rwq23DtX9qX/chelsea" width="433" height="162"></a>
+<a title="my art" href=https://open.spotify.com/playlist/4wT0JeYBGrqGjbw14eKo68?si=f7cf6af65bb34f08><img src="https://file.garden/Zdu77rwq23DtX9qX/chelsea" width="433" height="162"></a>
 <p align="center">
   <h5 align="center">
  
@@ -16,11 +16,15 @@
   for some basic info, i do art: digital/traditional illustration, character writing and clay sculpting! i'm also a furry but i draw humans more often than not. look at most of my characters <a href="https://toyhou.se/nojoki/characters/folder:all">here</a>
 
 <p align="center">
-as for other stuff you should know, i'm physically <a href="https://jeanniedibon.com/eds-and-scoliosis/#:~:text=29%25%20of%20patients%20with%20hEDS,found%20in%2029%25%20of%20patients."> disabled</a> + audhd, keep these in mind when interacting with me longterm. what i choose to share publicly about my health is very little of what i actually experience, so please be understanding if my behavior is irregular
+as for other stuff about me, i'm physically <a href="https://scoliosis3dc.com/2013/12/10/ehlers-danlos-syndrome-and-scoliosis/"> disabled</a> + audhd, keep these in mind when interacting with me longterm. what i choose to share publicly about my health is very little of what i actually experience, so please be understanding if my behavior is irregular. my body likes to fight me in a multitude of ways and sometimes it wins
 </p>
+
  <h6 align="center">
  <a href="https://nojoki.carrd.co/#">my carrd has a little more info</a>
 </p>
+   <p align="center">
+<a title="what is this?" href=https://www.ehlers-danlos.com/why-the-zebra/><img src="https://file.garden/Zdu77rwq23DtX9qX/zebrasd.png" width="45" height="40"></a>
+<p align="center">
 </h5>
 
 
