@@ -23,7 +23,7 @@ as for other stuff about me, i'm physically <a href="https://scoliosis3dc.com/20
  <a href="https://nojoki.carrd.co/#">my carrd has a little more info</a>
 </p>
    <p align="center">
-<a title="what is this?" href=https://www.ehlers-danlos.com/why-the-zebra/><img src="https://file.garden/Zdu77rwq23DtX9qX/zebrasd.png" width="45" height="40"></a>
+<a title="what is this?" href=https://www.ehlers-danlos.com/why-the-zebra/><img src="https://file.garden/Zdu77rwq23DtX9qX/zebrasd.png" width="25" height="25"></a>
 <p align="center">
 </h5>
 
