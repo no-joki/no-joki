@@ -1,29 +1,23 @@
 <p align="center">
-<a title=":3 my art" href=https://open.spotify.com/album/3KpYyDP8q8sUBxatHaYEsP?si=Dk_MmskkR9OiDZgGgahQEA><img src="https://file.garden/Zdu77rwq23DtX9qX/chelsea" width="433" height="162"></a>
+<a title="my art" href=https://open.spotify.com/album/3KpYyDP8q8sUBxatHaYEsP?si=Dk_MmskkR9OiDZgGgahQEA><img src="https://file.garden/Zdu77rwq23DtX9qX/chelsea" width="433" height="162"></a>
 <p align="center">
   <h5 align="center">
  
 <i>think about yourself for a minute, and you'll find the answer in it, everyone's a freak!</i>
 </p>
-
 </h5>
 <p align="center">
-⭐<a title="instagram" href=https://www.instagram.com/no.joki/><img src="https://file.garden/Zdu77rwq23DtX9qX/insta.png" width="87" height="11"/></a> | <a title="toyhouse" href=https://toyhou.se/nojoki><img src="https://file.garden/Zdu77rwq23DtX9qX/toyhouse2.png" width="78" height="11"/></a> | <a title="twitter" href=https://x.com/no_joki><img src="https://file.garden/Zdu77rwq23DtX9qX/twitter.png" width="68" height="11"/></a> | <a title="deviantart" href=https://www.deviantart.com/nojoki><img src="https://file.garden/Zdu77rwq23DtX9qX/deviantart.png" width="99" height="11"/></a>⭐
-<p align="center">
-  19 with a whole lot of nothing going on. i like animals and music and taking big licks of my oversized lollipop
+  19 with a whole lot of nothing going on. i like animals and music and taking big licks of my oversized lollipop. occassionally i will create a homunculus and quickly destroy it, for only i know what it is capable of
 </p>
 <p align="center">
-  as for ponytown, don't be afraid of me! my only ask is to have common decency, as too many people are cruel online... i'm open for conversation whenever and love to make new friends (especially oc artists!!!!! come here!!!)
+  as for ponytown, don't be afraid of me! my only ask is to have common decency and to respect basic boundaries. i'm open for conversation whenever and love to make new friends :)
 </p>
 <p align="center">
-  for some basic info, i do art: digital/traditional illustration, character writing and clay sculpting! i am also a furry but i draw humans much more than them lol i promise i fucks with em. <a href="https://toyhou.se/nojoki/characters/folder:all">look at most of my characters here</a>
+  for some basic info, i do art: digital/traditional illustration, character writing and clay sculpting! i'm also a furry but i draw humans more often than not. look at most of my characters <a href="https://toyhou.se/nojoki/characters/folder:all">here</a>
 
 <p align="center">
-as for other stuff you should know, i'm <a href="https://jeanniedibon.com/eds-and-scoliosis/#:~:text=29%25%20of%20patients%20with%20hEDS,found%20in%2029%25%20of%20patients.">physically disabled</a> + audhd, keep these in mind when interacting with me longterm. i'm not always available due to simply feeling Awful or i will forget to respond (i am so sorry) i promise i am not quiet nor shy, just doing something else probably! 
+as for other stuff you should know, i'm physically <a href="https://jeanniedibon.com/eds-and-scoliosis/#:~:text=29%25%20of%20patients%20with%20hEDS,found%20in%2029%25%20of%20patients."> disabled</a> + audhd, keep these in mind when interacting with me longterm. what i choose to share publicly about my health is very little of what i actually experience, so please be understanding if my behavior is irregular
 </p>
-<p align="center">
-  i have many interests, but most of them center on art. majority of my attention is on ocs specifically, but outside of that, i love exploring symbolism, character thought processes, and animated movies as a whole :) as for less involved interests, i enjoy circus works, anything vintage, and learning about psychology/physical disabilites!
-  </p>
  <h6 align="center">
  <a href="https://nojoki.carrd.co/#">my carrd has a little more info. not missing out on much</a>
 </p>
